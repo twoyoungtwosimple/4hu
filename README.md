@@ -7,7 +7,7 @@
 ------
 :star: :point_right: 地址三 ：https://www.9965x.com
 ------
-:bangbang::bangbang:重要提醒:bangbang::bangbang:请立即收藏本页面，避免走丢！
+:bangbang:重要提醒:bangbang:请立即收藏本页面，避免走丢！
 ==
 
 长按复制到浏览器里面访问以上网址
