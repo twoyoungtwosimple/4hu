@@ -3,7 +3,7 @@
 ==
 :star: :point_right: 【地址一】 ：https://www.1313qq.com
 ------
-:star: :point_right: 【地址二】 ：https://www.6639yy.com
+:star: :point_right: 【地址二】 ：https://www.6969qq.com
 ------
 :star: :point_right: 【地址三】 ：https://www.3636ww.com
 ------
