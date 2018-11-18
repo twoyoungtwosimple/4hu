@@ -1,11 +1,11 @@
 
 :bangbang::bangbang:四虎影库 地址发布:bangbang::bangbang:
 ==
-:star: :point_right: 【地址一】 ：https://www.1313qq.com
+:star: :point_right: 【地址一】 ：https://www.886ku.com
 ------
 :star: :point_right: 【地址二】 ：https://www.6969qq.com
 ------
-:star: :point_right: 【地址三】 ：https://www.3636ww.com
+:star: :point_right: 【地址三】 ：https://www.551ru.com
 ------
 :star: :point_right: 【大陆地址发布页】 ：https://www.4hu.me
 ------
